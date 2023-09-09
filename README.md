@@ -10,4 +10,4 @@ Taipei
 Tatsächlich ist damit schon ein Tag rum, da +6 Stunden Zeitverschiebung sind. 
 
 Wir sind gut im Hostel angekommen.
-![](https://github.com/georgsgit/georgsgit.github.io/main/20230909_191219.jpg)
+![](https://github.com/georgsgit/georgsgit.github.io/blob/main/20230909_191219.jpg)
