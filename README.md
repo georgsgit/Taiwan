@@ -16,4 +16,5 @@ Die erste Nacht im Hostel war top. Wir haben gut geschlafen und sind dann entspa
 Danach sind wir Richtung Berg ([maps](https://maps.app.goo.gl/eund1uhFUwiK8oD47)) aufgebrochen mit dem Bus. Das ging erstaunlich gut. Und der Kostet auch nur ein paar Euro :) aber das wandern auf ca 1200m bei 30 Grad in Jeans (Gepäck ist noch nicht da gewesen). War schon sehr warm. Zum Glück kann man oft Wasser nachfüllen :)  <br/>
 Danach sind wir dann noch zum nationalen Palastmuseum. Danach gings dann kurz zum Nightmarket nen Tee holen <3 und Appetit holen. Denn dann sind wir zum Hot pot all you can eat gegangen (bis wir rausgeflogen sind :). <br/>
 Satt zuhause und mit dem Gepäck (yeah) geht's jetzt auch gleich ins Bett. <br/>
-Update: Es gab ein Zeitlimit von 2 Stunden nach dem wir gebeten wurden zu gehen ... #rausgeflogen
+Update: Es gab ein Zeitlimit von 2 Stunden nach dem wir gebeten wurden zu gehen ... #rausgeflogen <br/>
+Beim Wandern haben wir auch diesen Büffel gesehen :) <img src="/Bueffel.jpg" alt="drawing" style="width:50%;"/>
