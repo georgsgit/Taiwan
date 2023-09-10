@@ -6,8 +6,8 @@ Wir also 12 Stunden im Dreamliner (boing 787) und wissen nicht ob wir unseren An
 Aber easy der Flug hat auch einfach Verspätung gehabt (musste auf Fluggäste warten ...).
 ## Day 2
 Tatsächlich ist damit schon ein Tag rum, da +6 Stunden Zeitverschiebung sind. 
-Die Landung in Taipei war dann dann auch etwas verspätet. Wir waren aber ganz entspannt/fertig :'). Als wir unser Gepäck abholen wollten nachdem wir uns eine Simkarte besorgt hatten, wurde uns von einer nettem Taiwanesin di neben uns im ersten Flieger saß gesagt, dass unser Gepäck nicht umgeladen wurde.
+Die Landung in Taipei war dann dann auch etwas verspätet. Wir waren aber ganz entspannt/fertig :'). Als wir unser Gepäck abholen wollten nachdem wir uns eine Simkarte besorgt hatten, wurde uns von einer nettem Taiwanesin die neben uns im ersten Flieger saß gesagt, dass unser Gepäck nicht umgeladen wurde.
 Also sind wir zum Schalter um das zu melden. Das ging eig auch ganz gut jetzt sollen wir erstmal ohne Gepäck los und die kommen dann nach. Wir sind also los und hoffen, daß das Gepäck zum Hostel nach kommt (hoffentlich nur weniger schleppen - in 4 Tagen wollen wir klettern, da brauchen wir das Equipment).
 Naja im Hostel sind wir dann auch nach einer Expressbahn Fahrt gut angekommen (5€ pp eig ganz gut :).
-Dort wurde uns kurz das Hostel gezeigt mit schuhe ausziehen und latschen wie auf der Hütte und schönenem BD mit Massage Strahler :') (ist nicht so gut wie es klingt :/ ). ![aussicht](/20230909_191219.jpg)
+Dort wurde uns kurz das Hostel gezeigt mit schuhe ausziehen und latschen wie auf der Hütte und schönenem BD mit Massage Strahler :') (ist nicht so gut wie es klingt :/ ). <img src="/20230909_191219.jpg" alt="drawing" style="width:200px;"/>
 Nach einem kurzen frisch machen haben wir unser erstes streetfood gegessen (4€ pp mega :). Nach etwas rum laufen und im Hostel chillen und quatschen, sind wir dann auch früh ins Bett, da wir ein ganzen Tag im Flugzeug mit doch eher weniger Schlaf schon anstrengend fanden ;)
