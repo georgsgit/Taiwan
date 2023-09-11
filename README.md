@@ -11,10 +11,13 @@ Also sind wir zum Schalter um das zu melden. Das ging eig auch ganz gut jetzt so
 Naja im Hostel sind wir dann auch nach einer Expressbahn Fahrt gut angekommen (5€ pp eig ganz gut :).
 Dort wurde uns kurz das Hostel gezeigt mit schuhe ausziehen und latschen wie auf der Hütte und schönenem BD mit Massage Strahler :') (ist nicht so gut wie es klingt :/ ). <img src="/20230909_191219.jpg" alt="drawing" style="width:50%;"/>
 Nach einem kurzen frisch machen haben wir unser erstes streetfood gegessen (4€ pp mega :). Nach etwas rum laufen und im Hostel chillen und quatschen, sind wir dann auch früh ins Bett, da wir ein ganzen Tag im Flugzeug mit doch eher weniger Schlaf schon anstrengend fanden ;)
-# Day 3
+## Day 3
 Die erste Nacht im Hostel war top. Wir haben gut geschlafen und sind dann entspannt los zum frühstücken :) <br/>
 Danach sind wir Richtung Berg ([maps](https://maps.app.goo.gl/eund1uhFUwiK8oD47)) aufgebrochen mit dem Bus. Das ging erstaunlich gut. Und der Kostet auch nur ein paar Euro :) aber das wandern auf ca 1200m bei 30 Grad in Jeans (Gepäck ist noch nicht da gewesen). War schon sehr warm. Zum Glück kann man oft Wasser nachfüllen :)  <br/>
 Danach sind wir dann noch zum nationalen Palastmuseum. Danach gings dann kurz zum Nightmarket nen Tee holen <3 und Appetit holen. Denn dann sind wir zum Hot pot all you can eat gegangen (bis wir rausgeflogen sind :). <br/>
 Satt zuhause und mit dem Gepäck (yeah) geht's jetzt auch gleich ins Bett. <br/>
 Update: Es gab ein Zeitlimit von 2 Stunden nach dem wir gebeten wurden zu gehen ... #rausgeflogen <br/>
 Beim Wandern haben wir auch diesen Büffel gesehen :) <img src="/Bueffel.jpg" alt="drawing" style="width:50%;"/>
+## Day 4
+Heute waren wir bouldern <3. Das hat echt Spaß gemacht und es war toll eine neue Halle auszutesten. Der Schwierigkeitsgrad war in der v-skala angegeben (boulder-scala). Wir haben es bis zur V4 geschafft :) <br/> 
+Danach gab's lecker essen und dann wurde geplant wie es weiter geht. Das hat Länger gedauert als gedacht (fast 4 stunden :')... dann sind wir noch auf den Elefant mountain und haben uns Taipei 101 angeschaut nachdem wir wieder lecker im night market essen waren. Und danach sind wir auch wieder zurück.
