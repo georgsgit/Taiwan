@@ -21,7 +21,7 @@ Beim Wandern haben wir auch diesen Büffel gesehen :) <img src="/Bueffel.jpg" al
 ## Day 4
 Heute waren wir bouldern <3. Das hat echt Spaß gemacht und es war toll eine neue Halle auszutesten. Der Schwierigkeitsgrad war in der v-skala angegeben (boulder-scala). Wir haben es bis zur V4 geschafft :) <br/> 
 Danach gab's lecker essen und dann wurde geplant wie es weiter geht. Das hat Länger gedauert als gedacht (fast 4 stunden :')... dann sind wir noch auf den Elefant mountain und haben uns Taipei 101 angeschaut nachdem wir wieder lecker im night market essen waren. Und danach sind wir auch wieder zurück. <br/>
-<img src="/Bouldern.jpg" alt="drawing" style="width:50%;"/>
+<img src="/Bouldern.jpeg" alt="drawing" style="width:50%;"/>
 ## Day 5
 Gestern gings dann los nach Long Dong :) <br/>
 Wir haben erst unseren Zug verpasst und dann auch unseren Bus, aber trotzdem hat am Ende alles gut geklappt. Wir haben einen schnelleren Zug genommen und als wir auf den Bus gewartet haben lecker gegessen. In Long Dong sind wir ein bißchen abgeschnitten. Hier wäre ein scooter eig top. Aber wir schlagen uns so durch. Die letzte Nacht waren wir alleine im Dorm :)<br/>
