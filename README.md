@@ -33,7 +33,7 @@ Wir waren irgendwie etwas durch und haben einfach mal gechillt und es an der Kü
 Genau wie angekündigt waren wir klettern und schnorcheln :) <br/>
 Zuerst sind wir mit allen Sachen zum Steinstrand (eig ziemlich cool weil man von Stein zu Stein springen kann). Dann waren wir kurz in den Kletterrouten, aber die im Schatten waren zu schwer und wir hatten leider auch keine richtige Topo. Deshalb sind wir dann erstmal schnorcheln und Klippenspringen gegangen :) <br/>
 Gegessen haben wir bei einem kleinen süßes Restaurant in der Bucht (wieder zurück über die Steine tshirt natürlich durchgeschwitzt). Nach kurzen frisch machen und einer Mittagspause um die Mittagshitze zu vermeiden, gings wieder los an den Fels. Leider waren wir dann so spät dran, dass wir nach dem Zustieg nur eine richtige Route geschafft haben beide, dass wir schon wieder zurück mussten, weil die Mücken kamen und wir kein Spray bei hatten. Auf dem Rückweg waren wir nochmal schnell im Wasser, weil das Shirt schon wieder durch war. <br/>
-Als wir zurück waren haben wir festgestellt, daß wir trotzdem noch bock haben und es einfach eine Topo im Hoszel gibt (wussten die iwie selber nicht O_O). Also haben wir beschlossen eine Nachtkletterrubde zu machen. Und das hat echt super geklappt. Das Shirt war aber trotzdem durch :') Dank Kopflampe hat das aber top geklappt. :)
+Als wir zurück waren haben wir festgestellt, daß wir trotzdem noch bock haben und es einfach eine Topo im Hostel gibt (wussten die iwie selber nicht O_O). Also haben wir beschlossen eine Nachtkletterrubde zu machen. Und das hat echt super geklappt. Das Shirt war aber trotzdem durch :') Dank Kopflampe hat das aber top geklappt. :)
 <br/>
 <img src="/Springen.jpg" alt="drawing" style="width:50%;"/><br/>
-<img src="/Klettern.jpg" alt="drawing" style="width:50%;"/>
+<img src="/Klettern.jpeg" alt="drawing" style="width:50%;"/>
