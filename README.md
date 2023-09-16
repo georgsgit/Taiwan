@@ -9,7 +9,7 @@ Tatsächlich ist damit schon ein Tag rum, da +6 Stunden Zeitverschiebung sind.
 Die Landung in Taipei war dann dann auch etwas verspätet. Wir waren aber ganz entspannt/fertig :'). Als wir unser Gepäck abholen wollten nachdem wir uns eine Simkarte besorgt hatten, wurde uns von einer nettem Taiwanesin die neben uns im ersten Flieger saß gesagt, dass unser Gepäck nicht umgeladen wurde.
 Also sind wir zum Schalter um das zu melden. Das ging eig auch ganz gut jetzt sollen wir erstmal ohne Gepäck los und die kommen dann nach. Wir sind also los und hoffen, daß das Gepäck zum Hostel nach kommt (hoffentlich nur weniger schleppen - in 4 Tagen wollen wir klettern, da brauchen wir das Equipment).
 Naja im Hostel sind wir dann auch nach einer Expressbahn Fahrt gut angekommen (5€ pp eig ganz gut :).
-Dort wurde uns kurz das Hostel gezeigt mit schuhe ausziehen und latschen wie auf der Hütte und schönenem BD mit Massage Strahler :') (ist nicht so gut wie es klingt :/ ). <img src="/20230909_191219.jpg" alt="drawing" style="width:50%;"/>
+Dort wurde uns kurz das Hostel gezeigt mit schuhe ausziehen und latschen wie auf der Hütte und schönenem BD mit Massage Strahler :') (ist nicht so gut wie es klingt :/ ). <img src="/20230909_191219.jpg" alt="drawing" style="width:50%;"/> <br/>
 Nach einem kurzen frisch machen haben wir unser erstes streetfood gegessen (4€ pp mega :). Nach etwas rum laufen und im Hostel chillen und quatschen, sind wir dann auch früh ins Bett, da wir ein ganzen Tag im Flugzeug mit doch eher weniger Schlaf schon anstrengend fanden ;)
 ## Day 3
 Die erste Nacht im Hostel war top. Wir haben gut geschlafen und sind dann entspannt los zum frühstücken :) <br/>
@@ -37,3 +37,11 @@ Als wir zurück waren haben wir festgestellt, daß wir trotzdem noch bock haben 
 <br/>
 <img src="/Springen.jpg" alt="drawing" style="width:50%;"/><br/>
 <img src="/Klettern.jpeg" alt="drawing" style="width:50%;"/>
+## Day 7
+Soo gestern war mal wieder ein Reisetag es ging von Long dong nach Taiching :) am Ende waren wir fast 5 Stunden unterwegs ... das war schon anstrengend. Aber wir haben entspannt gestartet. <br/>
+Morgens sind wir erstmal entspannt aufgestanden und nach dem auschecken noch einmal ans Wasser um eine DWS Route zu machen (klettern überm Wasser :). Das hat echt Spaß gemacht, danach musst wir aber dann auch los was essen und dann den "Bus" bekommen (eher son kleiner Transporter mit Sitzen drin, eine Erfahrung für sich :). Der Weg an der Küste und zu den Berghaltetstellen war echt cool. Dann ab zum Zug (fast verpasst weil wir den Automaten nicht verstanden haben - am Counter gings dann besser). Damit ab nach Taipei und von dort mit dem high spenden train nach Taichung :) das ging mega schnell und man hatte echt gut Platz für die Beine :). Die Menschen hier in Taiwan sind alle super nett und hilfsbereit. Das macht es echt einfacher von A nach B zu kommen. <br/>
+Als wir dann mit dem Bus bei unserem airbnb angekommen sind haben wir unsere Sachen gedroppt und sind erstmal essen gegangen auf dem night market. Das war mega lecker, danach sind wir zum airbnb, haben nen Film geschaut und sind eingeschlafen :)
+<img src="/Essen.jpg" alt="drawing" style="width:50%;"/><br/>
+<img src="/Klettern.jpeg" alt="drawing" style="width:50%;"/>
+## 8
+Nach endlich mal ausschlafen (fast wir wurden von Borherer der Handwerker geweckt). Sind wir erstmal dumplings frühstücken gegangen und jetzt machen wir mal eine Wäsche im Wasschsalon :) <br/>
