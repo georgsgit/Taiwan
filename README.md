@@ -42,5 +42,5 @@ Soo gestern war mal wieder ein Reisetag es ging von Long dong nach Taiching :) a
 Morgens sind wir erstmal entspannt aufgestanden und nach dem auschecken noch einmal ans Wasser um eine DWS Route zu machen (klettern überm Wasser :). Das hat echt Spaß gemacht, danach musst wir aber dann auch los was essen und dann den "Bus" bekommen (eher son kleiner Transporter mit Sitzen drin, eine Erfahrung für sich :). Der Weg an der Küste und zu den Berghaltetstellen war echt cool. Dann ab zum Zug (fast verpasst weil wir den Automaten nicht verstanden haben - am Counter gings dann besser). Damit ab nach Taipei und von dort mit dem high spenden train nach Taichung :) das ging mega schnell und man hatte echt gut Platz für die Beine :). Die Menschen hier in Taiwan sind alle super nett und hilfsbereit. Das macht es echt einfacher von A nach B zu kommen. <br/>
 Als wir dann mit dem Bus bei unserem airbnb angekommen sind haben wir unsere Sachen gedroppt und sind erstmal essen gegangen auf dem night market. Das war mega lecker, danach sind wir zum airbnb, haben nen Film geschaut und sind eingeschlafen :)
 <img src="/Essen.jpg" alt="drawing" style="width:50%;"/><br/>
-## 8
+## Day 8
 Nach endlich mal ausschlafen (fast wir wurden von Borherer der Handwerker geweckt). Sind wir erstmal dumplings frühstücken gegangen und jetzt machen wir mal eine Wäsche im Wasschsalon :) <br/>
