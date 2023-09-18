@@ -54,8 +54,10 @@ Heute waren wir in den Gaomei Wetlands. Das war schon ganz nice. Da gibt es echt
 Da hatten wir ne coole Session und danach ging es auch wieder lecker essen. Morgen holen wir uns ein Mietauto um in die Berge zu fahren. Ich bin gespannt :) <br/>
 <img src="/Krabben.jpg" alt="drawing" style="width:50%;"/>
 ## Day 10
-Wir waren nochmal lecker Frühstücken :) und dann gings ab zur Bahnstation um das Auto zu holen. Das ist zwar ziemlich teuer, aber hat sich in den Bergen direkt ausgezahlt. Es hat echt Spaß gemacht mal mit dem Auto unabhängig unterwegs zu sein. <br/>
+Wir waren nochmal lecker Frühstücken :) und dann gings ab zur Bahnstation um das Auto zu holen. Das ist zwar ziemlich teuer, aber hat sich in den Bergen direkt ausgezahlt. Es hat echt Spaß gemacht mal mit dem Auto unabhängig unterwegs zu sein Richtung "sun moon lake". <br/>
 Wir sind extra nicht Autobahn gefahren um ein bißchen die Landstraße zu fahren und die Aussicht zu genießen. Ist echt cool wie grün es hier ist. Tja wir haben dann auch rausgefunden wieso das so ist nachdem wir gut angenommen sind. Es wurde eh schon immer dunkler und wir dachten es ist weil es spät wird, aber es war noch nicht so spät und dann kam der erste Tropfen. Aber das war nichts und hat schnell wieder aufgehört. Wir haben uns im Hafen lecker was zu Essen und nen Tee besorgt und dann ging relativ schnell richtig los und hat heftig geregnet. Wir haben die Regenschirme geholt, aber die Hose war trotzdem vorne komplett nass. Zum Glück hatten wir Flipflops an. Die durften nass werden :) So bekommen die Pflanzen also ihr Wasser und werden schön grün. Hier mehr in den Berge abends ist es jetzt so auf 25°C runter gekühlt und wir planen die nächsten Tage und hoffen das uns das Wetter nicht so die kletter und Radfahr Pläne kaputt macht :') <br/>
 <video width="320" height="240" controls>
   <source src="/Regen.mp4" type="video/mp4">
 </video>
+<br/>
+Also sieht es hier gerade eher nach "rain moon lake" aus :') (thx @max für den Witz :)
