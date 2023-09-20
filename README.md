@@ -61,12 +61,15 @@ Wir sind extra nicht Autobahn gefahren um ein bißchen die Landstraße zu fahren
 </video>
 <br/>
 Also sieht es hier gerade eher nach "rain moon lake" aus :') (thx @max für den Witz :)
+
 ## Day 11
 Gestern war das Wetter wieder top :)
 Wir haben uns Räder geliehen und sind einmal um den See gefahren ca 30 km. Das hat echt Spaß gemacht bei vielen Kurven und ein bischen auf und ab. :)) <br/>
 Dann sollte eig wieder regen kommen und wir haben gechillt, kam er also nicht, also wollten wir nochmal wandern, aber der Weg wurde irgendwann immer verwucherter und dann kamen auch die Mücken, da sind wir umgedreht. <br/>
 Dann gab's, nach der Dusche (mal wieder voll durchgeschiwtzt gewesen 30°C), wieder lecker essen mit Blick auf den See :)
-<img src="/Rad.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+<video width="320" height="240" controls>
+  <source src="/Rad.mp4" type="video/mp4">
+</video>
 ## Day 12
 Heute geht es weiter rein in die Berge und morgen dann auf den höchsten Berg in Taiwan :)
 <br/>
@@ -75,5 +78,5 @@ Dann haben wir schon bei der Polizei gehalten wo wir morgen für unsere Bergtour
 Danach hatten wir noch Zeit uns haben uns Alishan angeschaut. Leider war es etwas neblig und dann kam auch ein bischen Regen. Mit Regenschirmen bewaffnet sind wir die Holzbrücken und -Treppen entlang und haben uns tausend Jahre Alte Bäume an geschaut. Das war schon beeindruckend. <br/>
 Danach gings weiter die geschwungene Bergstraße herunter zu unserer Unterkunft (bis jetzt die spartanischste - die Tür ist nicht dicht und wir sind eher im Nebenhaus, also können Mücken rein ...). Aber wir hatten schon härtere Betten :)
 <br/>
-Zum Abend sind wir ins Dort, da gab's tatsächlich einen 7eleven (ist sowas wie ein späti und Tankstelle in einem gibt's überall verkauft iwie alles und hat lange auf :) <br/>
+Zum Abend sind wir ins Dorf, da gab's tatsächlich einen 7eleven (ist sowas wie ein späti und Tankstelle in einem gibt's überall verkauft iwie alles und hat lange auf :) <br/>
 <img src="/Baum.jpg" alt="drawing" style="width:50%; margin:auto;"/>
