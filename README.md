@@ -61,3 +61,10 @@ Wir sind extra nicht Autobahn gefahren um ein bißchen die Landstraße zu fahren
 </video>
 <br/>
 Also sieht es hier gerade eher nach "rain moon lake" aus :') (thx @max für den Witz :)
+## Day 11
+Gestern war das Wetter wieder top :)
+Wir haben uns Räder geliehen und sind einmal um den See gefahren ca 30 km. Das hat echt Spaß gemacht bei vielen Kurven und ein bischen auf und ab. :)) <br/>
+Dann sollte eig wieder regen kommen und wir haben gechillt, kam er also nicht, also wollten wir nochmal wandern, aber der Weg wurde irgendwann immer verwucherter und dann kamen auch die Mücken, da sind wir umgedreht. <br/>
+Dann gab's, nach der Dusche (mal wieder voll durchgeschiwtzt gewesen 30°C), wieder lecker essen mit Blick auf den See :)
+## Day 12
+Heute geht es weiter rein in die Berge und morgen dann auf den höchsten Berg in Taiwan :)
