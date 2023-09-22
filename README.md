@@ -80,3 +80,7 @@ Danach gings weiter die geschwungene Bergstraße herunter zu unserer Unterkunft 
 <br/>
 Zum Abend sind wir ins Dorf, da gab's tatsächlich einen 7eleven (ist sowas wie ein späti und Tankstelle in einem gibt's überall verkauft iwie alles und hat lange auf :) <br/>
 <img src="/Baum.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+## Day 13
+Früh um 7 Uhr klingelt der Wecker. Die Sachen hatten wie schon am Abend vorher gepackt. Die Liste wurde abgearbeitet was wir alles noch am Morgen einpacken müssen. Dann gings auch schon ab ins Auto. - netterweise wurden uns zwei Eier für unsere Reise von locals geschenkt :) - Wir sind wieder gut den Berg hoch mit dem Auto geschlängelt. Beim Parkplatz angekommen wurde schnell gefrühstückt und der Müll am Ende im Auto gelassen (haben keinen Mülleimer gefunden - hoffentlich richt das nicht übel, wenn wir turück kommen). Und dann gings los :) <br/>
+Nach den ersten paar km haben wir direkt deutsche gehört. Und ihnen erstmal gesagt "wir sehen uns dann oben". Witziger weise sind sie mit dem Shuttelbus dann noch an uns winkender weise vorbei gefahren :) <br/>
+Auf dem richtigen Track haben wir sie dann eingeholt und auch überholt. Nach 3 Stunden und 40 Minuten. Waren wir bei unserer Übernachtung :) Sind echt schnell hoch gepest. Der Weg war echt cool, wir haben in der Sonne mit super Aussicht gestartet auf 2600m und sind dann auf 3400m gestiegen dort mit bisl Regen deutlich geringeren Themeraturen und leider Wolken. Hoffentlich sind wir morgen bei 3900m über den Wolken :)
