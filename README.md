@@ -90,8 +90,10 @@ Wieder klingelt der Wecker um 7 Uhr. Wir packen unsere Sachen, gehen runter zum 
 Nach ca einer Stunde sind wir dann auch auf dem höchsten Berg Taiwans :) Main Peak Yushan :) 3952m - Check. <br/>
 Aber dann war es erst 10 Uhr also haben wir beschlossen uns noch weitere Peaks anzuschauen. Mein Bruder ist zum North Peak und ich zum East Peak. Wir habe dafür mit einem Pärchen die Wanderpartner getauscht. Mein Beuder ist mit der Freundin in den Norden zum leichteren Peak der aber 2km weit weg ist und ich bin mit dem Freund zum 1km weit entfernten Peak der aber mit etwas klettern verbunden ist :) <br/>
 Wir haben am Ende gleich lang gebraucht. Dann sind mein Bruder und ich wieder zusammen den Berg runter.
+
 - 30 min zurück zur Lodage
 - wahrscheinlich 2 Stunden zurück zum Auto (haben noch die deutschen getroffen und uns verrutscht und sind dann in den Regen gekommen)
+
 <br/>
 Jetzt liegen wir warm, frisch geduscht im Bett nach einer Stunde Fahrt und morgen geht's weiter in die nächste Stadt :) <br/>
 <img src="/Yushan.jpg" alt="drawing" style="width:50%; margin:auto;"/>
