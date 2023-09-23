@@ -84,6 +84,7 @@ Zum Abend sind wir ins Dorf, da gab's tatsächlich einen 7eleven (ist sowas wie 
 Früh um 7 Uhr klingelt der Wecker. Die Sachen hatten wie schon am Abend vorher gepackt. Die Liste wurde abgearbeitet was wir alles noch am Morgen einpacken müssen. Dann gings auch schon ab ins Auto. - netterweise wurden uns zwei Eier für unsere Reise von locals geschenkt :) - Wir sind wieder gut den Berg hoch mit dem Auto geschlängelt. Beim Parkplatz angekommen wurde schnell gefrühstückt und der Müll am Ende im Auto gelassen (haben keinen Mülleimer gefunden - hoffentlich richt das nicht übel, wenn wir turück kommen). Und dann gings los :) <br/>
 Nach den ersten paar km haben wir direkt deutsche gehört. Und ihnen erstmal gesagt "wir sehen uns dann oben". Witziger weise sind sie mit dem Shuttelbus dann noch an uns winkender weise vorbei gefahren :) <br/>
 Auf dem richtigen Track haben wir sie dann eingeholt und auch überholt. Nach 3 Stunden und 40 Minuten. Waren wir bei unserer Übernachtung :) Sind echt schnell hoch gepest. Der Weg war echt cool, wir haben in der Sonne mit super Aussicht gestartet auf 2600m und sind dann auf 3400m gestiegen dort mit bisl Regen deutlich geringeren Themeraturen und leider Wolken. Hoffentlich sind wir morgen bei 3900m über den Wolken :)
+<img src="/Sonne.jpg" alt="drawing" style="width:50%; margin:auto;"/>
 ## Day 14
 Wieder klingelt der Wecker um 7 Uhr. Wir packen unsere Sachen, gehen runter zum Brunch (breakfast wäre um 1 Uhr morgens gewesen, damit man nachts los kann um den Sonnenaufgang vom peak aus zu sehen). Und machen uns dann  ganz gemütlich bei strahlendem Sonnenschein auf :) <br/>
 Nach ca einer Stunde sind wir dann auch auf dem höchsten Berg Taiwans :) Main Peak Yushan :) 3952m - Check. <br/>
@@ -91,4 +92,9 @@ Aber dann war es erst 10 Uhr also haben wir beschlossen uns noch weitere Peaks a
 Wir haben am Ende gleich lang gebraucht. Dann sind mein Bruder und ich wieder zusammen den Berg runter.
 - 30 min zurück zur Lodage
 - wahrscheinlich 2 Stunden zurück zum Auto (haben noch die deutschen getroffen und uns verrutscht und sind dann in den Regen gekommen)
-Jetzt liegen wir warm, frisch geduscht im Bett nach einer Stunde Fahrt und morgen geht's weiter in die nächste Stadt :)
+<br/>
+Jetzt liegen wir warm, frisch geduscht im Bett nach einer Stunde Fahrt und morgen geht's weiter in die nächste Stadt :) <br/>
+<img src="/Yushan.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+## Day 15
+Wir sind wieder um 7 Uhr aufgestanden :) ab ins Auto und nach Tainan. Dort sind wir jetzt auch schon angekommen und haben das Auto abgegeben :) <br/>
+Heute treffen wir Zeit Freunde und fahren nen bisl mit dem Scooter rum (ein Kumpel aus der Uni der hier Auslandsemester macht und eine chinesisch Lehrerin :).
