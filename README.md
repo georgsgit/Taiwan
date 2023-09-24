@@ -96,7 +96,7 @@ Wir haben am Ende gleich lang gebraucht. Dann sind mein Bruder und ich wieder zu
 
 <br/>
 Jetzt liegen wir warm, frisch geduscht im Bett nach einer Stunde Fahrt und morgen geht's weiter in die nächste Stadt :) <br/>
-<img src="/Yushan.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+<img src="/Yushan.jpg" alt="drawing" style="width:100%; margin:auto;"/>
 
 ## Day 15
 Wir sind wieder um 7 Uhr aufgestanden :) ab ins Auto und nach Tainan. Dort sind wir jetzt auch schon angekommen und haben das Auto abgegeben :) <br/>
@@ -104,7 +104,7 @@ Heute treffen wir Zeit Freunde und fahren nen bisl mit dem Scooter rum (ein Kump
 <br/>
 Wir haben uns dann Scooter besorgt und sind dann durch Tainan gefahren eigentlich von Essensspot zu Essenspot. Ein bißchen Tempel schauen und shopping war auch mit dabei. <br/>
 Gegen 21 Uhr haben wir die Roller zurück gebracht als wir endlich :') satt waren und sind dann noch zu dritt in eine Bar. Dort wurde aus einem Bier dann doch mehr und am Ende sind wir irgendwie gegen 4 oder 5 Uhr zurück zum Hostel gekommen. <br/>
-<img src="/Tainan.webp" alt="drawing" style="width:50%; margin:auto;"/>
+<img src="/Tainan.jep" alt="drawing" style="width:50%; margin:auto;"/>
 
 ## Day 16
 Entsprechend haben wir heute ausgeschlafen und ausgekatert :) <br/>
