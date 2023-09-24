@@ -104,7 +104,7 @@ Heute treffen wir Zeit Freunde und fahren nen bisl mit dem Scooter rum (ein Kump
 <br/>
 Wir haben uns dann Scooter besorgt und sind dann durch Tainan gefahren eigentlich von Essensspot zu Essenspot. Ein bißchen Tempel schauen und shopping war auch mit dabei. <br/>
 Gegen 21 Uhr haben wir die Roller zurück gebracht als wir endlich :') satt waren und sind dann noch zu dritt in eine Bar. Dort wurde aus einem Bier dann doch mehr und am Ende sind wir irgendwie gegen 4 oder 5 Uhr zurück zum Hostel gekommen. <br/>
-<img src="/Tainan.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+<img src="/Tainan.webp" alt="drawing" style="width:50%; margin:auto;"/>
 
 ## Day 16
 Entsprechend haben wir heute ausgeschlafen und ausgekatert :) <br/>
