@@ -111,3 +111,10 @@ Entsprechend haben wir heute ausgeschlafen und ausgekatert :) <br/>
 Zuerst haben wir uns nen Tee geholt uns in den Park gechillt, dann sind wir zu Massage, danach gab's lecker dumplings :) <br/>
 Und jetzt sitzen wir wieder im Park und warten auf unsere Wäsche (musste mal wieder sein). <br/>
 <img src="/Park.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+
+## Day 17
+Gestern sind wir entspannt nach Kenting gefahren :) Das hat echt gut geklappt, erst mit dem Zug dann Bus. Mit dem fast immer schön an Meer entlang :). <br/>
+Wir sind gegen 15 Uhr angekommen, konnten direkt einchecken und dann ins Meer springen :) <br/>
+Danach wollten wir noch den Kletterspot auschecken, aber wir haben ihn unter den Palmen und Büschen nicht gefunden :') es wurde dann auch dunkel und wir wollten uns nochmal durchgeschwitzt wie wir waren im Meer abkühlen. 🌊 Promt nachdem wir das erledigt hatten fing es an zu regnen und zwar gar nicht ohne :') <br/>
+Also sind wir uns schnell duschen, umziehen und Regenschirm holen gegangen um dann lecker Fiach essen zu gehen und danach in unserer cooles Appartment zurück zu gehen :) <br/>
+<img src="/Spot.jpg" alt="drawing" style="width:50%; margin:auto;"/>
