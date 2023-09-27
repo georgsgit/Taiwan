@@ -118,3 +118,10 @@ Wir sind gegen 15 Uhr angekommen, konnten direkt einchecken und dann ins Meer sp
 Danach wollten wir noch den Kletterspot auschecken, aber wir haben ihn unter den Palmen und Büschen nicht gefunden :') es wurde dann auch dunkel und wir wollten uns nochmal durchgeschwitzt wie wir waren im Meer abkühlen. 🌊 Promt nachdem wir das erledigt hatten fing es an zu regnen und zwar gar nicht ohne :') <br/>
 Also sind wir uns schnell duschen, umziehen und Regenschirm holen gegangen um dann lecker Fiach essen zu gehen und danach in unserer cooles Appartment zurück zu gehen :) <br/>
 <img src="/Spot.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+
+## Day 18
+Gestern haben wir geschaut wo genau wir klettern können. Am Ende haben wir wen bei Facebook angeschrieben und Koordinaten bekommen. <br/>
+Das hat aber ein bißchen gedauert, deshalb waren wir vorher ein bißchen im Meer schnorcheln und haben geschaut ob man am Sail Rock DWS machen kann, leider ist das Wasser wahrscheinlich nicht tief genug :/ <br/>
+Dann wsr aber auch erstmal Zeit für eine Mittagspause am Strand. Danach haben wir probiert durch den Dschungel zu den Spots zu kommen und haben es geschafft. Jedoch sind wir aus Angst vor Regen dann nicht mehr klettern gegangen. <br/>
+Der blieb dann doch aus und wir haben uns etwas mit dem Yetski rum fahren lassen :) das wsr ganz nice, wenn auch kurz :') (hatten aber auch nur ca 20€ bezahlt). <br/>
+Dann gings auch schon zum abendlichen Fischessen und ins Bett, da jetzt endlich klettern an steht :) <br/>
