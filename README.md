@@ -122,6 +122,14 @@ Also sind wir uns schnell duschen, umziehen und Regenschirm holen gegangen um da
 ## Day 18
 Gestern haben wir geschaut wo genau wir klettern können. Am Ende haben wir wen bei Facebook angeschrieben und Koordinaten bekommen. <br/>
 Das hat aber ein bißchen gedauert, deshalb waren wir vorher ein bißchen im Meer schnorcheln und haben geschaut ob man am Sail Rock DWS machen kann, leider ist das Wasser wahrscheinlich nicht tief genug :/ <br/>
-Dann wsr aber auch erstmal Zeit für eine Mittagspause am Strand. Danach haben wir probiert durch den Dschungel zu den Spots zu kommen und haben es geschafft. Jedoch sind wir aus Angst vor Regen dann nicht mehr klettern gegangen. <br/>
+Dann war aber auch erstmal Zeit für eine Mittagspause am Strand. Danach haben wir probiert durch den Dschungel zu den Spots zu kommen und haben es geschafft. Jedoch sind wir aus Angst vor Regen dann nicht mehr klettern gegangen. <br/>
 Der blieb dann doch aus und wir haben uns etwas mit dem Yetski rum fahren lassen :) das wsr ganz nice, wenn auch kurz :') (hatten aber auch nur ca 20€ bezahlt). <br/>
 Dann gings auch schon zum abendlichen Fischessen und ins Bett, da jetzt endlich klettern an steht :) <br/>
+
+## Day 19
+Heute ging es dann früh raus um endlich klettern zu gehen. Vorher schnell noch frühstücken und dann ab durch den Dschungel mit dem ganzen Material und an die Wand. <br/>
+Zum Glück waren die Routen die wir uns gestern ausgesucht hatten nicht in der Sonne und es war auch nicht zu heiß (Shirts waren trotzdem durch). Also Sachen angezogen und ab in die erste Route. <br/>
+Das klettern hat richtig Spaß gemacht auch, wenn es echt anstrengender bei den Temperaturen ist. Wir haben eher einfachere Routen gemacht weil wir dem Sandstein hier nicht soo vertraut haben :'). Da auf dem Boden fast überall Ameisen waren wollten wir nicht mittag am Spot essen und sind zum späten mittag zurück. <br/>
+Dann brauchten wir doch erstmal Pause und haben wieder gechillt. Danach war es zu spät um wieder fast klettern zu gehen und wir hatten leider auch kleine Wunden vom spitzen Fels ... also weiter chillen am Meer und den Sonnenuntergang genießen. <br/>
+Dann wollten wir Abendessen im Dorf und bei der Rezeption nach einer Empfehlung fragen ... am Ende wurden wir zur nächsten kleinen Stadt gefahren und haben uns da, dank des lieferservices, mega satt gegessen :) <br/>
+Nach planen der restlichen Tour ä, schauen wir jetzt nen Film (fast unser abendlichen Ritual, weil wir in den Dörfern abends sonst nicht wissen was wir machen sollen ohne Licht :')
