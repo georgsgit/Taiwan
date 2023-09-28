@@ -125,6 +125,7 @@ Das hat aber ein bißchen gedauert, deshalb waren wir vorher ein bißchen im Mee
 Dann war aber auch erstmal Zeit für eine Mittagspause am Strand. Danach haben wir probiert durch den Dschungel zu den Spots zu kommen und haben es geschafft. Jedoch sind wir aus Angst vor Regen dann nicht mehr klettern gegangen. <br/>
 Der blieb dann doch aus und wir haben uns etwas mit dem Yetski rum fahren lassen :) das wsr ganz nice, wenn auch kurz :') (hatten aber auch nur ca 20€ bezahlt). <br/>
 Dann gings auch schon zum abendlichen Fischessen und ins Bett, da jetzt endlich klettern an steht :) <br/>
+<img src="/Dschungel.jpg" alt="drawing" style="width:50%; margin:auto;"/>
 
 ## Day 19
 Heute ging es dann früh raus um endlich klettern zu gehen. Vorher schnell noch frühstücken und dann ab durch den Dschungel mit dem ganzen Material und an die Wand. <br/>
@@ -132,4 +133,11 @@ Zum Glück waren die Routen die wir uns gestern ausgesucht hatten nicht in der S
 Das klettern hat richtig Spaß gemacht auch, wenn es echt anstrengender bei den Temperaturen ist. Wir haben eher einfachere Routen gemacht weil wir dem Sandstein hier nicht soo vertraut haben :'). Da auf dem Boden fast überall Ameisen waren wollten wir nicht mittag am Spot essen und sind zum späten mittag zurück. <br/>
 Dann brauchten wir doch erstmal Pause und haben wieder gechillt. Danach war es zu spät um wieder fast klettern zu gehen und wir hatten leider auch kleine Wunden vom spitzen Fels ... also weiter chillen am Meer und den Sonnenuntergang genießen. <br/>
 Dann wollten wir Abendessen im Dorf und bei der Rezeption nach einer Empfehlung fragen ... am Ende wurden wir zur nächsten kleinen Stadt gefahren und haben uns da, dank des lieferservices, mega satt gegessen :) <br/>
-Nach planen der restlichen Tour ä, schauen wir jetzt nen Film (fast unser abendlichen Ritual, weil wir in den Dörfern abends sonst nicht wissen was wir machen sollen ohne Licht :')
+Nach planen der restlichen Tour ä, schauen wir jetzt nen Film (fast unser abendlichen Ritual, weil wir in den Dörfern abends sonst nicht wissen was wir machen sollen ohne Licht :') <br/>
+<img src="/Klettern.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+
+## Day 20
+Heute ging es weiter an die Ostküste. Erst wieder mit dem Bus und dann mit der Bahn. <br/>
+Wir haben uns dann Räder geliehen weil wir die nächsten zwei Tage mit dem Rad 170km fahren wollen bei 30°C mal schauen wie das klappt. Das große Gepäck werden wir separat versenden. <br/>
+Der erste Abend heute mit den Rädern war top: Park, Sonnenuntergang und dann lecker essen beim night market. <br/>
+<img src="/Sonne.jpg" alt="drawing" style="width:50%; margin:auto;"/>
