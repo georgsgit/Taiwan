@@ -140,4 +140,4 @@ Nach planen der restlichen Tour ä, schauen wir jetzt nen Film (fast unser abend
 Heute ging es weiter an die Ostküste. Erst wieder mit dem Bus und dann mit der Bahn. <br/>
 Wir haben uns dann Räder geliehen weil wir die nächsten zwei Tage mit dem Rad 170km fahren wollen bei 30°C mal schauen wie das klappt. Das große Gepäck werden wir separat versenden. <br/>
 Der erste Abend heute mit den Rädern war top: Park, Sonnenuntergang und dann lecker essen beim night market. <br/>
-<img src="/Sonne.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+<img src="/Sonne2.jpg" alt="drawing" style="width:50%; margin:auto;"/>
