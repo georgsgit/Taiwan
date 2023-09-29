@@ -141,3 +141,12 @@ Heute ging es weiter an die Ostküste. Erst wieder mit dem Bus und dann mit der 
 Wir haben uns dann Räder geliehen weil wir die nächsten zwei Tage mit dem Rad 170km fahren wollen bei 30°C mal schauen wie das klappt. Das große Gepäck werden wir separat versenden. <br/>
 Der erste Abend heute mit den Rädern war top: Park, Sonnenuntergang und dann lecker essen beim night market. <br/>
 <img src="/Sonne2.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+
+## Day 21 🌈 
+Um 10 Uhr ging unsere Tour los. Die Daypacks haben wir irgendwie auf den Gepäckträger gemacht (war eher eine Schieflage...) und dann gings mit ca 3l Wasser los. <br/>
+Joa bei ca 32°C durch die Sonne zu fahren ist echt warm und man schwitzt echt viel :') Nach 10km brauchten wir eine Pause wir hatten nämlich natürlich Gegenwind - yeah (nicht). <br/>
+Also haben wir uns erstmal Wasser uns eine frische Kokosnuss gegönnt :) und dann ging gestärkt und etwas gesättigt weiter ... <br/>
+Nach weiter 10km war wieder Pause angesagt, der Schweiß los und durch den Gegenwind sind wir immer abwechselnd vorne gefahren (Musik hat geholfen :). Dann wieder Pause :) nach ca 5 Pausen (mit Abkühlung im Meer und Regenbogen) sind wir dann um 18 Uhr zum Sonnenuntergang glücklich und auseratem angekommen :) die ersten 100km sind geschafft - yeah.
+<br/>
+Ich denke wir werden heute gut schlafen :) <br/>
+<img src="/Regenbogen.jpg" alt="drawing" style="width:50%; margin:auto;"/>
