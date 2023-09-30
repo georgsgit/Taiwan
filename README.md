@@ -150,3 +150,8 @@ Nach weiter 10km war wieder Pause angesagt, der Schweiß los und durch den Gegen
 <br/>
 Ich denke wir werden heute gut schlafen :) <br/>
 <img src="/Regenbogen.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+
+## Day 22
+Heute sin wir wieder gegen 10 Uhr los. Der Wind war wieder gegen uns und die Sonne gnadenlos. Bergauf haben wir echt gekämpft obwohl es insgesamt nur iwie 300m sind. <br/>
+Highlight war es 15km zusammen mir einem anderen Radfahrer abwechselnd in Kolone zu fahren :) <br/>
+Wir waren sehr glücklich dann gegen 17 Uhr anzukommen. Danach hat es etwas länger gedauert zum night market zu kommen, was nicht perfekt für die Stimmung war. Aber jetzt sind wir gesättigt und schlafen wahrscheinlich mindestens so gut wie gestern :) <br/>
