@@ -155,3 +155,9 @@ Ich denke wir werden heute gut schlafen :) <br/>
 Heute sin wir wieder gegen 10 Uhr los. Der Wind war wieder gegen uns und die Sonne gnadenlos. Bergauf haben wir echt gekämpft obwohl es insgesamt nur iwie 300m sind. <br/>
 Highlight war es 15km zusammen mir einem anderen Radfahrer abwechselnd in Kolone zu fahren :) <br/>
 Wir waren sehr glücklich dann gegen 17 Uhr anzukommen. Danach hat es etwas länger gedauert zum night market zu kommen, was nicht perfekt für die Stimmung war. Aber jetzt sind wir gesättigt und schlafen wahrscheinlich mindestens so gut wie gestern :) <br/>
+
+
+## Day 23
+Gestern waren wir ziemlich fertig vom Rad fahren noch :') wir wollten uns trotzdem in die Natur begeben. Die Idee war Wahle oder Delfine zu beobachten, aber wegen einem kommenden Taifun ist das nicht möglich gewesen :/. Canyoning war auch so kurzfristig nicht möglich und leider ist Rollerleihen nur mit dem internationalen Führerschein und A Lizenz möglich. <br/>
+Am Emde haben wir uns ein Auto gemietet und sind nochmal eine kleine Runde am Nachmittag gewandert und dann abends nach dem night market entspannt ins Bett :) <br/>
+<img src="/Wasser.jpg" alt="drawing" style="width:50%; margin:auto;"/>
