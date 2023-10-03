@@ -159,5 +159,13 @@ Wir waren sehr glücklich dann gegen 17 Uhr anzukommen. Danach hat es etwas län
 
 ## Day 23
 Gestern waren wir ziemlich fertig vom Rad fahren noch :') wir wollten uns trotzdem in die Natur begeben. Die Idee war Wahle oder Delfine zu beobachten, aber wegen einem kommenden Taifun ist das nicht möglich gewesen :/. Canyoning war auch so kurzfristig nicht möglich und leider ist Rollerleihen nur mit dem internationalen Führerschein und A Lizenz möglich. <br/>
-Am Emde haben wir uns ein Auto gemietet und sind nochmal eine kleine Runde am Nachmittag gewandert und dann abends nach dem night market entspannt ins Bett :) <br/>
+Am Ende haben wir uns ein Auto gemietet und sind nochmal eine kleine Runde am Nachmittag gewandert und dann abends nach dem night market entspannt ins Bett :) <br/>
 <img src="/Wasser.jpg" alt="drawing" style="width:50%; margin:auto;"/>
+
+## Day 24
+Mit dem Auto sind wir dann nochmal Richtung Taroko Nationalpark und haben eine längere Tour gemacht, leider war die etwas touristisch und der coole Wanderteil war gesperrt. So konnten wir aber das Auto rechtzeitig zurück bringen und mal im Hostel busl gammeln (Wetter war nicht top - Wolken -, wegen dem kommenden Taifun ...) <br/>
+Abends gings wieder lecker essen auf dem night market :)
+
+## Day 25
+Heute waren wir Canonying :) das hat echt Spaß gemacht dem Verlauf des Flusses zu folgen und ins Wasser zu springen und sich endlichen im Wasser abkühlen zu können (das ist hier sonst irgendwie nicht so üblich). <br/>
+Heute geht's dann auch mit der Bahn gleich weiter zurück nach Taipei und übermorgen geht es dann ab zum Flughafen :)
