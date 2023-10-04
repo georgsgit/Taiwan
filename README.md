@@ -168,4 +168,9 @@ Abends gings wieder lecker essen auf dem night market :)
 
 ## Day 25
 Heute waren wir Canonying :) das hat echt Spaß gemacht dem Verlauf des Flusses zu folgen und ins Wasser zu springen und sich endlichen im Wasser abkühlen zu können (das ist hier sonst irgendwie nicht so üblich). <br/>
-Heute geht's dann auch mit der Bahn gleich weiter zurück nach Taipei und übermorgen geht es dann ab zum Flughafen :)
+Heute geht's dann auch mit der Bahn gleich weiter zurück nach Taipei und übermorgen geht es dann ab zum Flughafen :) <br/>
+In Taipei waren wir mal wieder all you can eat essen mit dem alt bekannten Kumpel von hier. Und danach haben wir noch eine Tee-Cocktail Bar ausgetestet. Die drinks waren sehr fancy, aber wenig, dafür lecker :) <br/>
+
+## Day 26
+Unser letzter Tag :) morgen geht's Heim. Dafür haben wir aber echt den Regentag noch voll ausgekostet. Lecker Frühstück, dann zum bouldern :) und danach zu den hot springs um sich einfach zu entspannen. :) <br/>
+Heute Abend gab's das letzte mal essen auf dem night market in Taipei :/ Freue mich aber auch mal wieder selber was frisches zu kochen :) <br/>
