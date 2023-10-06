@@ -180,6 +180,7 @@ Heute Abend gab's das letzte mal essen auf dem night market in Taipei :/ Freue m
 
 ## Day 27
 Gestern haben wir das letzte mal lecker gefrühstückt und dann gings auch schon langsam zum Flughafen. Wir waren etwas früh dran, aber wegen dem kommenden Taifun war das Wetter eh schlecht und wir hätten nicht viel gemacht. Gegen Mittag gings dann los, um Mitternacht waren wir dann in Singapur. Witziger weise waren wir im selben Flug wie eine Bekannte von meinem Bruder :) <br/>
+<img src="/Sandwich.jpg" alt="drawing" style="width:50%; margin:auto;"/>
 
 ## Day 28
 Wir sind pünktlich in Berlin gelandet, warten auf unser Gepäck und wieder super Abholservicw vom Bruder :) <br/>
