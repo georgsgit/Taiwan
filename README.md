@@ -164,22 +164,26 @@ Am Ende haben wir uns ein Auto gemietet und sind nochmal eine kleine Runde am Na
 
 ## Day 24
 Mit dem Auto sind wir dann nochmal Richtung Taroko Nationalpark und haben eine längere Tour gemacht, leider war die etwas touristisch und der coole Wanderteil war gesperrt. So konnten wir aber das Auto rechtzeitig zurück bringen und mal im Hostel busl gammeln (Wetter war nicht top - Wolken -, wegen dem kommenden Taifun ...) <br/>
-Abends gings wieder lecker essen auf dem night market :)
+Abends gings wieder lecker essen auf dem night market :) <br/>
+<img src="/Taroko.jpg" alt="drawing" style="width:50%; margin:auto;"/>
 
 ## Day 25
 Heute waren wir Canonying :) das hat echt Spaß gemacht dem Verlauf des Flusses zu folgen und ins Wasser zu springen und sich endlichen im Wasser abkühlen zu können (das ist hier sonst irgendwie nicht so üblich). <br/>
 Heute geht's dann auch mit der Bahn gleich weiter zurück nach Taipei und übermorgen geht es dann ab zum Flughafen :) <br/>
-In Taipei waren wir mal wieder all you can eat essen mit dem alt bekannten Kumpel von hier. Und danach haben wir noch eine Tee-Cocktail Bar ausgetestet. Die drinks waren sehr fancy, aber wenig, dafür lecker :) <br/>
+In Taipei waren wir mal wieder all you can eat essen mit dem alt bekannten Kumpel von hier. Und danach haben wir noch eine Tee-Cocktail Bar ausgetestet. Die drinks waren sehr fancy, aber wenig, dafür lecker :)<br/>
+<img src="/Canonying.jpg" alt="drawing" style="width:50%; margin:auto;"/> 
 
 ## Day 26
 Unser letzter Tag :) morgen geht's Heim. Dafür haben wir aber echt den Regentag noch voll ausgekostet. Lecker Frühstück, dann zum bouldern :) und danach zu den hot springs um sich einfach zu entspannen. :) <br/>
 Heute Abend gab's das letzte mal essen auf dem night market in Taipei :/ Freue mich aber auch mal wieder selber was frisches zu kochen :) <br/>
+<img src="/Taipei3.jpg" alt="drawing" style="width:50%; margin:auto;"/>
 
 ## Day 27
 Gestern haben wir das letzte mal lecker gefrühstückt und dann gings auch schon langsam zum Flughafen. Wir waren etwas früh dran, aber wegen dem kommenden Taifun war das Wetter eh schlecht und wir hätten nicht viel gemacht. Gegen Mittag gings dann los, um Mitternacht waren wir dann in Singapur. Witziger weise waren wir im selben Flug wie eine Bekannte von meinem Bruder :) <br/>
 
 ## Day 28
 Wir sind pünktlich in Berlin gelandet, warten auf unser Gepäck und wieder super Abholservicw vom Bruder :) <br/>
+<img src="/Flug2.jpg" alt="drawing" style="width:50%; margin:auto;"/>
 
 ### Summary
 
