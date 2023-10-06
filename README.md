@@ -174,3 +174,25 @@ In Taipei waren wir mal wieder all you can eat essen mit dem alt bekannten Kumpe
 ## Day 26
 Unser letzter Tag :) morgen geht's Heim. Dafür haben wir aber echt den Regentag noch voll ausgekostet. Lecker Frühstück, dann zum bouldern :) und danach zu den hot springs um sich einfach zu entspannen. :) <br/>
 Heute Abend gab's das letzte mal essen auf dem night market in Taipei :/ Freue mich aber auch mal wieder selber was frisches zu kochen :) <br/>
+
+## Day 27
+Gestern haben wir das letzte mal lecker gefrühstückt und dann gings auch schon langsam zum Flughafen. Wir waren etwas früh dran, aber wegen dem kommenden Taifun war das Wetter eh schlecht und wir hätten nicht viel gemacht. Gegen Mittag gings dann los, um Mitternacht waren wir dann in Singapur. Witziger weise waren wir im selben Flug wie eine Bekannte von meinem Bruder :) <br/>
+
+## Day 28
+Wir sind pünktlich in Berlin gelandet, warten auf unser Gepäck und wieder super Abholservicw vom Bruder :) <br/>
+
+### Summary
+
+- Meist gesagter Satz: "Kriege ich ein Hotspot, bitte"
+- Bester Tag: Klettern auf den Yushan
+- Bestes Essen: Bauze (große dumplings mit mehr Teig und Füllung:)
+
+<br/>
+Nice to know:
+- Man sollte ein internationalen A Führerschein haben
+- Für Radfahren würde ich eher von Haulien nach Taitung emphlen (Windrichtung)
+- Mir einer Telefonnummer kann man sich mittels der app und der easykarte ein Rad mieten in größeren Städten (bis 5 pro TelNr)
+- Taiwanesen sind super freundlich mit einem Handyübersetzungen kommt man sehr weit :)
+- Das Essen lohnt sich
+- Die Wettervorhersage war meistens schlecht, aber der Regen kam wenn dann abends :)
+- Es ist mega geil grün :)
